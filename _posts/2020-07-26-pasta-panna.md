@@ -8,7 +8,7 @@ categories: [pasta, ham, parmezan]
 
 ## Benodigdheden
 
-- pasta (penne of bv spaghetti
+- pasta (penne of bv spaghetti)
 - 3x150 gr gekookte hamblokjes (3 pakjes)
 - twee eierdooiers
 - 3 teentjes look
