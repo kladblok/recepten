@@ -10,7 +10,7 @@ categories: [dessert, ijs]
 
 ## Benodigdheden
 
-- 8 eieren
+- 8 eierdooiers
 - 500ml volle melk
 - 500ml 33% room
 - vanillestokje (minstens 1)
