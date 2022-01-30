@@ -33,7 +33,7 @@ Voor 4 personen:
 1. Bedek een bakplaat met boterpapier. 
 1. Leg afgestreken lepels deeg op het bakpapier. Laat voldoende afstand tussen de koekjes, en maak de bolletjes zeker niet te groot!!. 
 1. Druk ze (met een vork of met de vingers) een beetje plat; en strooi er de chocoladestukjes op. 
-1. Bak ze vervolgens 20 minuten in de oven op 180°C goudgeel. Laat ze afkoelen.
+1. Bak ze vervolgens 22 minuten in de oven op 180°C goudgeel. Laat ze afkoelen.
 
 
 ## Tips
