@@ -10,7 +10,7 @@ categories: [dessert, ijs, sorbet]
 ## Benodigdheden
 
 - 500gr bevroren mangoblokjes
-- 100ml water
+- 150ml water
 - 100gr kristalsuiker
 - 1 eetlepel citroensap of limoensap
 
